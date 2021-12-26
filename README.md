@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LeJenz360
+- 👀 I’m interested in coding and piano and engineering
+- 🌱 I’m currently learning on coding a robot
+- 💞️ I’m looking to collaborate online
+- 📫 reach me by email pls
